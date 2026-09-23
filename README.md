@@ -125,7 +125,7 @@ Apart from academics, I enjoy:
 ## 🔗 Connect With Me
 
 - 🐙 **GitHub:** [My GitHub Profile](https://github.com/)
-- 💼 **LinkedIn:** [My LinkedIn Profile](https://www.linkedin.com/)
+- 💼 **LinkedIn:** https://www.linkedin.com/in/fathima-shahaliya-95560b432?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ---
 
